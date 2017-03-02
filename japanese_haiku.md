@@ -19,5 +19,8 @@ Moon so bright for love!<br>come closer, quilt...<br>enfold<br>My passionate col
 
 A saddening world:<br>flowers whose sweet<br>blooms must fall...<br>As we too, alas...
 
+Flower in the stream<br>thus too my lovely life<br>must end, another<br>Flower...<br>To fall and float away
+
+
 
 
