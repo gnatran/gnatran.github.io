@@ -16,3 +16,8 @@ Twilight whippoorwill ...<br>whistle on,<br>sweet deepener<br>Of dark loneliness
 By that fallen house<br>the pear-tree stands<br>full-blooming ...<br>An ancient battle-site
 
 Moon so bright for love!<br>come closer, quilt...<br>enfold<br>My passionate cold!
+
+A saddening world:<br>flowers whose sweet<br>blooms must fall...<br>As we too, alas...
+
+
+
