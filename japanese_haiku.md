@@ -16,3 +16,15 @@ Twilight whippoorwill ...<br>whistle on,<br>sweet deepener<br>Of dark loneliness
 By that fallen house<br>the pear-tree stands<br>full-blooming ...<br>An ancient battle-site
 
 Moon so bright for love!<br>come closer, quilt...<br>enfold<br>My passionate cold!
+
+A saddening world:<br>flowers whose sweet<br>blooms must fall...<br>As we too, alas...
+
+Flower in the stream<br>thus too my lovely life<br>must end, another<br>Flower...<br>To fall and float away
+
+Black desolate moor...<br>I bow before<br>the Buddha<br>Lighted in thunder
+
+Here, where a thousand<br>captains swore grand<br>conquest ...<br>Tall grass their monument
+
+
+
+
