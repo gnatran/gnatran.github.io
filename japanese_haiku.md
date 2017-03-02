@@ -7,3 +7,12 @@ I dreamed of battles<br>And was slain...<br>Oh savage samurai!<br>Insatiable fle
 
 Dead my old fine hopes<br>and dry my dreaming<br>but still...<br>Iris, blue each spring
 
+Hanging the lantern<br>on that full white<br>blooming bough...<br>Exquisite your care!
+
+In the city fields<br>contemplating<br>cherry-trees...<br>Strangers are like friends
+
+Twilight whippoorwill ...<br>whistle on,<br>sweet deepener<br>Of dark loneliness
+
+By that fallen house<br>the pear-tree stands<br>full-blooming ...<br>An ancient battle-site
+
+Moon so bright for love!<br>come closer, quilt...<br>enfold<br>My passionate cold!
