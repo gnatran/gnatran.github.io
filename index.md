@@ -8,6 +8,6 @@ My own background is in library science not computer science. I have a master of
 
 My undergraduate degree is in history and philosophy, which is why you may encounter content originating from medieval and classical sources on this site.
 
-### Pages on This Site
+## Pages on This Site
 
 - [Japanese haiku](japanese_haiku.md)
