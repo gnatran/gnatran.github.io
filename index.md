@@ -7,5 +7,3 @@ I love history, which is why you may encounter content originating from medieval
 ## Pages on This Site
 
 - [Japanese haiku](japanese_haiku.md)
-
-![LEGO Samurai](LEGO_avatar.jpg)
