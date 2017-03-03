@@ -34,3 +34,6 @@ Scanned at sacred-texts.com, April 2007. Proofed and [originally] formatted by J
 This text is in the public domain in the United States because it was not renewed in a timely fashion as required by law at the time. These files may be used for any non-commercial purpose, provided this notice of attribution is left intact in all copies.
 
 
+---
+
+I added this extra bit of text as a commit that will be rolled-back, I hope. Nothing seems to work quite as expected on this damn system.
