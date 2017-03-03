@@ -24,6 +24,8 @@ Black desolate moor...<br>I bow before<br>the Buddha<br>Lighted in thunder
 
 Here, where a thousand<br>captains swore grand<br>conquest ...<br>Tall grass their monument
 
+---
+
 ## Attribution and Copyright ##
 Scanned at sacred-texts.com, April 2007. Proofed and formatted by John Bruno Hare.
 
