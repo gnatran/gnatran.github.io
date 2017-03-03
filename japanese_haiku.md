@@ -1,6 +1,6 @@
-# A short collection of Japanese Haiku.<br>
+# A short collection of Japanese Haiku. #
 
-*A few of my favourites recreated in markdown.*<br>
+*A few of my favourites recreated in markdown.*
 
 
 I dreamed of battles<br>And was slain...<br>Oh savage samurai!<br>Insatiable fleas!
