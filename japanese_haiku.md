@@ -1,7 +1,8 @@
 # A short collection of Japanese Haiku.
 
 *A few of my favourites recreated in markdown.*
-<br>
+
+
 I dreamed of battles<br>And was slain...<br>Oh savage samurai!<br>Insatiable fleas!
 
 Dead my old fine hopes<br>and dry my dreaming<br>but still...<br>Iris, blue each spring
@@ -25,6 +26,7 @@ Black desolate moor...<br>I bow before<br>the Buddha<br>Lighted in thunder
 Here, where a thousand<br>captains swore grand<br>conquest ...<br>Tall grass their monument
 
 ---
+
 
 ## Attribution and Copyright ##
 Scanned at sacred-texts.com, April 2007. Proofed and formatted by John Bruno Hare.
